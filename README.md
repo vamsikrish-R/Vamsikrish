@@ -1,7 +1,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Vamsi krish
 ===================================================================================================================================
 
-Pharmacovigilance and medical documentation professor
+Registered Pharmacist and medical documentation professor
 -----------------------------------------------------
 
 🔬 Passionate Pharmacovigilance Job Seeker | Life Sciences Graduate | Committed to Patient Safety and Drug Monitoring
